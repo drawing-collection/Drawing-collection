@@ -1,2 +1,0 @@
-# pagina
-drawing collection
